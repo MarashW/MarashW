@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @MarashW
-- 👀 I’m interested in ...
+- 👋 Hi, I’m Kumsal
+- 👀 I’m interested in ...Computer games, drawing, singing... I don't have many social skills unfortunately.
 - 🌱 I’m currently learning Software, English and Japanese
 - 💞️ I'm not thinking of collaborating right now, but as I progress in software, it's a dream of mine to work in big places..
 - 📫 How to reach me?.. You can reach me via discord or email.^^
